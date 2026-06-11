@@ -120,4 +120,4 @@
 
 ## 官网入口
 
-**最新地址：**  [https://order.yizhihongxing.club/](https://order.yizhihongxing.club/aff.php?aff=22767)
+**最新地址：**  [https://order.yizhihongxing.org/](https://order.yizhihongxing.org/aff.php?aff=22767)
