@@ -5,9 +5,6 @@
 最新官网地址：  
 [https://order.yizhihongxing.org/](https://order.yizhihongxing.org/aff.php?aff=22767)
 
-备用官网地址：  
-[https://order.yizhihongxing.club/](https://order.yizhihongxing.club/aff.php?aff=22767)
-
 作为运营多年的老牌机场服务商，一枝红杏提供服务已超过 10 年的时间，凭借稳定的线路质量和丰富的节点资源，长期受到不少用户关注。对于有跨地区网络访问、流媒体观看以及日常办公需求的用户来说，其整体表现较为均衡。
 
 ---
